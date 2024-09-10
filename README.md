@@ -1,0 +1,3 @@
+# Trump_trabajo_medicine_difficulties
+In Greek word άγχος means being stressed if we say Trump is stressed sounds like trabajo.We must calm a bit there is some interest from my point of view for all this peace thinking in Ukraine for example. I'll do some sketches later, trying to ease things up a bit...being ugly(sometimes I am ugly) is not a nice idea
+but it's worse if you act wrong and ugly...I hope everyone to be healthy. God is good doctors are good too maybe better sometimes..so follow instructions from your doctors please....please do follow instructions from your official and original doctors.
